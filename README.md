@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...she/her 
 - ⚡ Fun fact: ... I like to swim 
 -->
+![IMG_8180](https://github.com/user-attachments/assets/514bec52-5bd8-4654-a812-758a6730969e)
